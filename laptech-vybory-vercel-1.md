@@ -1,2 +1,0 @@
-# Vibory1
-Ge
